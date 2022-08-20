@@ -1,1 +1,1 @@
-Kenty memo
+ i preffer Kenty memo
